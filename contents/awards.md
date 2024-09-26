@@ -1,9 +1,7 @@
-- First-prize Academic Scholarship, 2023.
+- Professional Scholarship, Academic Year 2021-2022, 2022-2023, 2023-2024.
 
-- Freshman Academic Scholarship, 2022.
+- Towers Watson Scholarship, Academic Year 2021-2022 (Top 5\%).
 
-- Excellent Graduation Project of Jiangsu Province, 2022.
+- Outstanding Student Award, Fudan University, Academic Year 2021-2022.
 
-- First-prize Enterprise Scholarship, 2021.
-
-- First-prize Academic Scholarship, 2019.
+- First Prize Freshman Scholarship, 2021.
