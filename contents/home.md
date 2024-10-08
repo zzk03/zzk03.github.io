@@ -2,7 +2,7 @@
 
 
 
-Welcome to my homepage! I am currently a senior student at the School of Methematical Sciences, Fudan University. My Chinese name pronounces like zhahng-dzuh-koon in English.
+Welcome to my homepage! I am currently a senior student at the School of Methematical Sciences, Fudan University. 
 
 #### Email
 zkzhang21[at]m.fudan.edu.cn
